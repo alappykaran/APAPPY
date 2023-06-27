@@ -27,3 +27,4 @@ BOAT RACE
 Along the shores of Lake Vembanad is Thanneermukkom. Thanneermukkom, a barrier against salt water created across the lake, connecting it to Vechoor in the Kottayam district.
 
 The farmers in Kuttanad, where farm is done below the sea level have benefit from this barrier. The backwaters, which were teeming with fish and made up a significant portion of the region's population's staple diet, need a tiny amount of saline water for spawning. Fish catches in the area have declined a result of the salt water barrier, and as of 2005, fishermen are hostile to the bund.
+http://aravind12.liveblog365.com/alappuzha/
